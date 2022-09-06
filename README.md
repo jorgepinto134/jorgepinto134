@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Jorge Pinto
 - 👀 I’m interested in aviation, sports, science and technology.
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently studying at UTAD.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: email: pinto.jorgefernando@gmail.com
                       linkedin: https://www.linkedin.com/in/jorge-pinto-b5bb84198/
